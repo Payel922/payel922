@@ -1,4 +1,4 @@
-# ##💫 About Me:
+💫 About Me:
 "Passionate about exploring the latest in tech innovations, bridging the gap between ideas and impact. Always learning, always curious 🚀
 
 
